@@ -3,7 +3,7 @@ heloo, welcome to my read me! Im hysteria or sebbyz! i hope you don't skip past 
 
 dni: proshippers, darkshippers, 18+ or 18 year olds. people younger than 13, ragebaiters, people who harrass me for fun, sprunki in general dont int pls, friend who pretend to like me or shortened two faced, back stabber, you know check my recently updated read me if i haven't told you what else i dont want to int.
 
-int: gachiakuta, dandy world, outlaws of robloxia, save robloxia, trud, mcsm , dod , forsaken some of the time , phighting, cos, mm2012, pressure.
+int: gachiakuta, dandy world, outlaws of robloxia, save robloxia, trud, mcsm , dod , forsaken some of the time , phighting, cos, mm2012, pressure ,regretevator , bfdi, tpot, osc
 
 if your going to be annoying and a dunce then stay away, i don't like when people being annoying for a peculiar reason.
 im mostly offtab so c+h always even  if my name says dni you may c+h, but when a friend is with me already , 
