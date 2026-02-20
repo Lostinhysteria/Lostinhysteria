@@ -12,8 +12,8 @@ please don't c+h because they don't like random people, but if your a friend but
 then you might wanna friend me, cuz uh i tend to forget friends because i have a bad memory, 
 
 sprunki dni i hate the fandom and the videos about sm unless they arent like weird.
+![Your descriptive alt text](path/to/your/animation.gif)
 
-<img width="1366" height="768" alt="Screenshot (1)" src="https://github.com/user-attachments/assets/5a03fcb0-0e90-4c50-a439-bc99e111557f" />
 
 
 anyway this is the end of my read me buh bye i hope you stop bye again!
