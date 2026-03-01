@@ -1,4 +1,13 @@
-i love hjd
+Hello, i'm gregoriah or sebbyz i preferably go by sebbyz but gregoriah is fine too
+i am a muilti-shipper and a minor so keep this in mind.                                                                           
 
-![noli-noli-hjd](https://github.com/user-attachments/assets/da1a7634-3d9c-4c54-8da0-8dbe164ed967)
-![tenor](https://github.com/user-attachments/assets/e9e424e3-6eb0-4f9b-95d4-519596aabc9a)
+	
+
+don't attack me because my designs of characters have tails, 
+im not a furry and it pisses me off when people assue i am bc of my cosplays.
+
+i have many intrests here are some of the many:
+
+hjd, forsaken, dod, phighting, seildirectory, rochas313, roblox args, osc, bfdi, and maybe others idk,
+
+i don't have much to put here so this is wip for now.
